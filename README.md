@@ -1,5 +1,7 @@
 # Frase Coupon Code 2025 - Get 50% Discount 🔥
 
+Hello folks, Amir here.
+
 In this article, we’ll highlight the Frase coupon codes for 2025, including how you can get an amazing [50% discount](https://www.frase.io/pricing/?via=shadow) on your subscription.
 
 Whether you’re a beginner or a seasoned pro, this offer is too good to miss. So, keep reading to learn how you can unlock these incredible savings today!
