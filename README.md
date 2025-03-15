@@ -10,7 +10,7 @@ Whether you’re a beginner or a seasoned pro, this offer is too good to miss. S
 
 Get a discount of 50% on your Frase plan. This is a limited-time offer applicable on all plans. Claim this offer before it expires.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXf3cBFtL4yQt7vf4SUIVxC_2pb6C2VB_J4FP2E6WCHX-utjMXr7WNuhZwigsHlN907XBnYEgs_hkz_s5KEdtpQRRx_kVOxdBSDsKZGvMiUW7Sf6dI_jMe2yXPA3wvsBLeTmjkRIHg?key=a34mvdt4eUrji8EJ1ypu82cs)](https://www.frase.io/pricing/?via=shadow)
+[![Discount button](https://github.com/user-attachments/assets/29fa6675-c0b7-49f4-92f0-c1659502b8ab)](https://www.frase.io/pricing/?via=shadow)
 
 ## Top Frase Coupon Codes for 2025
 
@@ -30,7 +30,7 @@ Let’s dive into the best deals available right now. Below are the current Fras
 * Expiry Date: No expiry date, but be sure to grab the trial soon before it potentially changes.
 * How to Use: Sign up on the Frase website and enter the FRTRIAL7 code to activate your 7-day free trial and explore all the premium features.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfxJN-_R877n4TIDzizdmZTJjlkaRBfCv8OUk8LhoY6rGBmXQlpN-vRgP0ynvErZi_YrrVt-g_T-FROlFV7Bwns5lYhF7vwn9yMkBpfs-Sj9lmz7QQOK4qg5Xo52p1QSBofNr99iA?key=a34mvdt4eUrji8EJ1ypu82cs)](https://www.frase.io/pricing/?via=shadow)
+[![Discount button](https://github.com/user-attachments/assets/29fa6675-c0b7-49f4-92f0-c1659502b8ab)](https://www.frase.io/pricing/?via=shadow)
 
 ## How to Redeem Your Frase Coupon Code?
 
@@ -42,7 +42,7 @@ Redeeming your Frase coupon code is a quick and straightforward process. Follow 
 4. Confirm Your Discount: Double-check that your discount has been applied before proceeding.
 5. Complete Your Purchase: Once your discount is confirmed, complete the checkout process and enjoy Frase’s powerful SEO and content tools at a fraction of the price!
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXc6e1sLLNKaH4eXWgxKM7uNPw6Iwn9QSXkXyyAl-r0vN6-99ywqRMdys3DLhT9k4dwAPjbu2c3j_CH58U9TUP_Gr4GciST6_dbzq1FAkRhTPagkNmdPkmqP_Ujqn-h9d_HIcSwrUg?key=a34mvdt4eUrji8EJ1ypu82cs)](https://www.frase.io/pricing/?via=shadow)
+[![Discount button](https://github.com/user-attachments/assets/29fa6675-c0b7-49f4-92f0-c1659502b8ab)](https://www.frase.io/pricing/?via=shadow)
 
 ---
 
@@ -71,7 +71,7 @@ Frase offers several pricing plans to cater to different user needs. Here’s a 
   * With FRTRIAL7: Free 7-day trial for the Advanced plan
   * Try out all the premium features of Frase without paying anything upfront!
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeQZUKkQ-90rH78owqnJIoWj544Q3HJ2qeAAWGr3SjXOm0XdJ_C6vsUpFB9yZszNEVb2BSKMj2pkYixyZP0OutPvjc6Jib7-Ix55z-AaX_guDihCDZf1l3FdV4V0h_AYrZYVk3k9g?key=a34mvdt4eUrji8EJ1ypu82cs)](https://www.frase.io/pricing/?via=shadow)
+[![Discount button](https://github.com/user-attachments/assets/29fa6675-c0b7-49f4-92f0-c1659502b8ab)](https://www.frase.io/pricing/?via=shadow)
 
 ## About Frase
 
